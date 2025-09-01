@@ -1,3 +1,5 @@
+# Pointers
+
 With this issue, *The Catholic Observer* changes name to *The Point*. It is a name we feel is wonderfully fitting. If there is any adjective that describes American life today, it is “pointless.” What are we here for? where are we going? what is the point of it all? are questions that are left unanswered. Our particular concern, though, is that Catholics are sharing in this general regime of pointlessness. And for them it is especially tragic, for they have been entrusted with keeping the one true Faith, and today they are losing sight of the point of that Faith. They treat it as an efficient organization for the suppression of Communism, as a fund-raising, enterprise — as almost everything, except what it is, the Church founded by Our Lord Jesus Christ for our salvation.
 
 If you want to get *The Point*, send us your name and address, and we will put you on our mailing list. We can promise you a monthly [edition] of notes and comment in which all of the remarks will be pointed, pointed in the direction of the Catholic Faith.
