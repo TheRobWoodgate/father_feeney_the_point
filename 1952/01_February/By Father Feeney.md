@@ -1,3 +1,5 @@
+# By Father Feeney
+
 The generic religion of the United States of America is meeting-house Christianity. Its ritual requires three items: a pew, a pulpit, and a preacher. Add to that a small organ, to assist in its single devotional indulgence: a hymn.
 
 The meeting-house itself is a sacred edifice which looks something like a church, partly like a library, and a little like a bank. It is often covered with ivy, and in more cultivated sections of our country, as in New England, is usually rich in historical reminiscences.
